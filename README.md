@@ -1,1 +1,1 @@
-# TikTokClaimer
+Copyright to @JvelOnTop 
